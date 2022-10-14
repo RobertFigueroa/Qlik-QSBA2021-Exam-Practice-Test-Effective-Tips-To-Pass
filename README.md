@@ -1,0 +1,1 @@
+# Qlik-QSBA2021-Exam-Practice-Test-Effective-Tips-To-Pass
